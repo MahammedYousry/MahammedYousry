@@ -1,6 +1,5 @@
 - 👋 Hi, I’m MahammedYousry
 - 👀 I’m interested in Software Engineering 
-
 <!---- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...--->
 - 📫 How to reach me 01129231313 or mahamedyousry777@gmail.com
